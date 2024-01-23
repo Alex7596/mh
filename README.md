@@ -7,3 +7,4 @@
 Вопросы с вариантами ответа: демон или грешник (всплывает объяснение о различиях между ними), после этого надо ответить на вопрос, если выбрал демона какому виду он принадлежит. На каком кругу появляется (вместе с этим появляется объяснение о том как демон или грешник может оказаться на том или ином кругу) и причина смерти.
 После базовых вопросов, нужно более открыто ответить на такие вопросы как: как умери, когда умери, как жили и чем занимались до своей смерти и как жили, где жили, какой национальности, какие были отношения с окружающим обществе и т.д.
 https://miro.com/welcomeonboard/ODV0TTRHdjNXeXJYY3lmaVNlZjVFQWF2UVhFWGFWS0g5VjMzR3B0d3B0NjY4RGhnTUZubWFpNkJ4RjFQNXJRRXwzNDU4NzY0NTc2MjMzODA1MTU2fDI=?share_link_id=557168329878
+https://miro.com/welcomeonboard/SDBCZ1E1TDd4VUNDUHVBeExLTTFZNmxCOEZyMlhuZ0paYTYzcHg4MmtUQXN5SlNWUlRXQjFnMHRIVVNoeHJxd3wzNDU4NzY0NTc2MjMzODA1MTU2fDI=?share_link_id=278870865947
